@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BixcoitoFofo
+- 👀 I’m a Gaymer, love reading, watching movies and animes :3
+- 🌱 I’m currently learning how to program, i'm a begginer :,) (would love some help btw)
+- I'm a Brazilian guy 
+- 📫 If u wanna chat u can text me on instagram: luigi.kasper
